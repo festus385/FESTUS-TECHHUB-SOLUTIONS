@@ -1,0 +1,1 @@
+we deal with phone fixing, laptop fixing, console fixing we also supply high quality gadgets both pre owned and brand new from [UK BRANDS!!] you can reach us on +260775808100 or +260761875068 or email:festusz385@gmail.com
